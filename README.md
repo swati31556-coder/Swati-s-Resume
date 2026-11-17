@@ -1,2 +1,0 @@
-# Swati-s-Resume
-Resume
